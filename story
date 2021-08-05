@@ -1,0 +1,1 @@
+Paranormal investgator Ed and Lorraine Warren take on one of the most sensational cases of their carrers after a cop stumbles upon a dazed and blodoied young man walking down the road. Accused of murder, the suspect claims demonic possession as his defense, forcing the Warrens into a supernatural inquiry unlike anything they have seen before[.  
